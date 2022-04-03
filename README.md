@@ -1,4 +1,4 @@
-![image](https://github.com/Lovkost/Lovkost/blob/main/u-n-e-a-s-y-bonfire-7.gif)
+![image](https://github.com/Lovkost/Lovkost/blob/main/89F951249.gif)
 
 ### Контакты
 
