@@ -2,7 +2,7 @@
 
 ### Контакты
 
-https://t.me/lovkost
+[!(https://thumbs.dreamstime.com/b/logo-d-isolement-de-t%C3%A9l%C3%A9gramme-illustration-vecteur-ic-ne-t-l-gramme-minsk-belarus-mars-ic%C3%B4ne-142910403.jpg)] https://t.me/lovkost
 
 lovkostdev@gmail.com
 
